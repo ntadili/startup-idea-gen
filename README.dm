@@ -1,0 +1,1 @@
+A finely-tuned AI-powered tool that generates unique startup ideas from any keyword, inspired by real-world problems and challenges
